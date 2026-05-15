@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with smart pump.fun sniper bot | rug-pull-detection + MEV-detection, the #1 pump.fun sniper bot. Includes rug-pull-detection and MEV-detection for a faster
 
 
 
